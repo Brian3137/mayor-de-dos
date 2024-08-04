@@ -1,4 +1,4 @@
-## CMayor de dos
+## Mayor de dos
 
 --
 
